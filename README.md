@@ -1,3 +1,0 @@
-Multimidia - UEA
-Seu Som
-=============
